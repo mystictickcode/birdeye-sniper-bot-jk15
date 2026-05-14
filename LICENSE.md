@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with instant birdeye sniper bot | rug-pull-detection + honeypot-detection, the #1 birdeye sniper bot. Includes rug-pull-detection and honeypot-detection for a
 
 
 
